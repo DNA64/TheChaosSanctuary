@@ -1,5 +1,7 @@
 # Welcome to TheChaosSanctuary Wiki!
 
+#### [Rules](https://www.reddit.com/r/TheChaosSanctuary/wiki/index/rules)
+
 #### [Diablo II: Resurrected - Save File Locations](https://www.reddit.com/r/TheChaosSanctuary/about/wiki/index/save_file_locations)
 
 
